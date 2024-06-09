@@ -1,1 +1,1 @@
-# ai.agency
+https://anastasiaivanko.github.io/ai.agency/
